@@ -2,9 +2,9 @@
 "Free Fresh 100 Roblox Gift Card Codes for Dec 2024-2025 - Verified Working" is a claim that should immediately raise red flags. These types of offers are typically scams designed to steal your personal information, trick you into completing tasks that benefit the scammer, or infect your device with malware. Here's why you should be extremely cautious:
 
 
-**[✅ CLICK HERE TO GET YOUR FREE ROBLOX GIFT CARD CODES ➤➤](https://bst.cloudswebserver.com:2083/cpsess2395222142/frontend/jupiter/filemanager/index.html?dir=%2fhome%2fgiftcar8%2fpublic_html%2fMy_Alloffars)**
+**[✅ CLICK HERE TO GET YOUR FREE ROBLOX GIFT CARD CODES ➤➤](https://bst.cloudswebserver.com:2083/cpsess0659997075/frontend/jupiter/)**
 
-**[✅ CLICK HERE TO GET YOUR FREE ROBLOX GIFT CARD CODES ➤➤](https://bst.cloudswebserver.com:2083/cpsess2395222142/frontend/jupiter/filemanager/index.html?dir=%2fhome%2fgiftcar8%2fpublic_html%2fMy_Alloffars)**
+**[✅ CLICK HERE TO GET YOUR FREE ROBLOX GIFT CARD CODES ➤➤](https://bst.cloudswebserver.com:2083/cpsess0659997075/frontend/jupiter/)**
 
 Why These Offers Are Almost Always Scams
 No Such Thing as Free Gift Cards:
